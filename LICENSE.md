@@ -1,4 +1,4 @@
-# 
+# Experience scary shawarma kiosk like never before with scary shawarma kiosk no-ban Scripts, the #1 Script. Includes private server access and speed
 
 
 
